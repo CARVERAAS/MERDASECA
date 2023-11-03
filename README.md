@@ -1,2 +1,4 @@
 # MERDASECA
 SE ESSA MERDA FUCASSE COMO DEVE SER NAO TINHA DE VOLTAR A PERDER TEMPO A CRIRA UM NOVO REPOSITORIO;
+FILHOS DA PUTA I am editing the README file. Adding some more details about the project description.
+
